@@ -24,7 +24,7 @@ d. Hugging : Hugs might not be appropriate for all workers.
 e. Odd man out : Each worker should be treated equally and none should be given extra attention because of liking. Performance should be the only thing that's rewarded.  
 f. The Contract : Making sexual advances for a contract.  
 g. Twisted words : Using double meaning words.  
-h. Equal Appreciation : Not all the people equally for their performance.  
+h. Equal Appreciation : Not rewarding all the workers equally for their performance.  
 i. Everyone loves the compliment : Constant compliments might not be comfortable for some workers.  
 j. Testing the waters : Making inappropriate advances.  
 
